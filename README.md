@@ -9,5 +9,5 @@ Proshippers, homophobes, bigots, chauvinists DNI. Feel free to gtfo if you're an
 <br>
 About me.. I like rocks. I aspire to be a Geologist. I really like rocks; I can spend hours studying gemstones without tiring myself. I Also enjoy listening to music. Though I'd say my taste is quite obscure. Most of the time I'm listening to Black/Doom metal, post-punk/darkwave and gothic music as such. Despite being an artist I don't draw often. Sometimes I sculpt stuff using clay. I also really like fountain pens. I own a TWSBI ECO and I treasure it very much.
 ### Btw, I'm a huge Flins fan if you couldn't tell ahah 🤍
-![alt text](https://files.catbox.moe/zu2eh9.png)
+![alt text](https://files.catbox.moe/ve4jvk.jpg)
 <br> my beautiful, handsome, gorgeous, kind, compassionate, smart, intelligent, lovely, otherworldly husband... There's so much to say. I love him.
