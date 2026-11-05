@@ -4,7 +4,7 @@ Proshippers, homophobes, bigots, chauvinists DNI. Feel free to gtfo if you're an
 ( Problematic ships include RerFlins; do NOT sit beside me as Rerir if I'm cosing Flins. )
 <br>
 <br>I'm not comfortable with carrying out overly romantic roleplays or display of romantic gestures. Please be cautious. <br>
-<br> Subtle flirting is okay 👀 Although, I prefer to know your age before we do so. <br>
+<br> Subtle flirting is okay 👀 Although, I prefer to know your age before we do so.
 <br> kisses and nuzzles are okay but please don't expect me to return the same favor all the time. I usually get very awkward with affection.<br>
 <br>
 About me.. I like rocks. I aspire to be a Geologist. I really like rocks - I can spend hours studying gemstones without tiring myself. 
