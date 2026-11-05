@@ -1,4 +1,4 @@
-### Hello, I am usually off-tab. I suggest you check my status and whisper if you want to talk to me. (although, don't hold yourself back from whispering even if im on DND)  I'm usually open to taking part in conversations! c+h freely anytime :] ‼️ <br>
+### Hello, I am usually off-tab and on the verge of disconnecting. I suggest you check my status and whisper if you want to talk to me. (although, don't hold yourself back from whispering even if im on DND)  I'm usually open to taking part in conversations! c+h freely anytime :] ‼️ <br>
 ###### ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 Proshippers, homophobes, bigots, chauvinists DNI. Feel free to gtfo if you're any one of these. I am not a shipper. Regardless, I will respect your ships as long as they're not problematic. <br>
 ( Problematic ships include RerFlins; do NOT sit beside me as Rerir if I'm cosing Flins. )
