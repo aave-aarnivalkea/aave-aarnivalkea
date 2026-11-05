@@ -16,3 +16,4 @@ About me.. I like rocks. I aspire to be a Geologist. I really like rocks - I can
 ### Was it obvious enough that I like Flins? 🤍
 ![alt text](https://files.catbox.moe/ve4jvk.jpg)
 <br> I wish to collect all sorts of wonderful gemstones, antiques and oddities with this loveable little gentleman. I have no issue emptying our wallets together if it is to decorate our basement in radiant opulence. But none could truly eclipse the glimmer that escapes through this man's phantasm.
+###### I'm addicted to whatever spending problem he has
