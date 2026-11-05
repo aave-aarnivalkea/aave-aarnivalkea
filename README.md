@@ -8,7 +8,7 @@ Proshippers, homophobes, bigots, chauvinists DNI. Feel free to gtfo if you're an
 <br> kisses and nuzzles are okay but please don't expect me to return the same favor all the time. I usually get very awkward with affection.<br>
 <br>
 About me.. I like rocks. I aspire to be a Geologist. I really like rocks - I can spend hours studying gemstones without tiring myself. 
-<br> I Also enjoy listening to music. Though I'd say my taste is quite obscure. Most of the time I'm listening to Black/Doom metal, post-punk/darkwave and gothic music as such. 
+<br> I also enjoy listening to music. Though I'd say my taste is quite obscure. Most of the time I'm listening to Black/Doom metal, post-punk/darkwave and gothic music as such. 
 <br> Despite being an artist I don't draw often. Sometimes I sculpt stuff using clay. I really enjoy board games.
 <br> I'm also really passionate about fountain pens. I own a TWSBI ECO and I treasure it very much.
 
