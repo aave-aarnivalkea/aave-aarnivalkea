@@ -10,7 +10,7 @@ Proshippers, homophobes, bigots, chauvinists DNI. Feel free to gtfo if you're an
 About me.. I like rocks. I aspire to be a Geologist. I really like rocks - I can spend hours studying minerals without tiring myself. 
 <br> I also enjoy listening to music. Though I'd say my taste is quite obscure. Most of the time I'm listening to atmospheric melo-black/doom metal, post-punk/darkwave and gothic music as such. 
 <br> Despite being an artist I don't draw often. Sometimes I sculpt stuff using clay. I really enjoy board games.
-<br> I'm also really passionate about fountain pens. I own a TWSBI ECO and I treasure it very much.
+<br> I'm also really passionate about fountain pens and inks. I own a TWSBI ECO and I treasure it very much.
 
 [@pony-town-nominations](https://github.com/pony-town-nominations/pony-town-nominations) pony town's Flins <3
 ### Was it obvious enough that I like Flins? 🤍
